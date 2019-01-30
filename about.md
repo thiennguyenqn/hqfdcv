@@ -6,7 +6,7 @@
 * Chia sẻ những điều xoay quanh tới [Conan](#) và văn hóa Nhật, Việt.
 * Không dùng ngôn ngữ kích động, thù địch, gây war... (hãy là một người văn minh nha~).
 * **Vi phạm nội quy:** Thành viên sẽ bị xử lí bằng cách **"cho ra ngoài đảo xa xa xa..."** :3 
-***
+
 # B. Về vấn đề duyệt thành viên
 ## 1. Thời gian duyệt vào nhóm?
 Tùy admin :3
@@ -15,7 +15,7 @@ Tùy admin :3
 * **LƯU Ý:** Sau 3h, nếu không trả lời câu hỏi sẽ bị hủy yêu cầu tham gia nhóm.
 ## 2. Mật khẩu vào nhóm: 
 **hqfdcv**
-***
+
 # C. Các trang thuộc **FDCV**
 * Fanpage: https://www.facebook.com/fanDetectiveConan
 * Blog: https://fanconanvn.blogspot.com
