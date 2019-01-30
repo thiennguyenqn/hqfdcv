@@ -14,7 +14,7 @@ Tùy admin :3
 ## 2. Tại sao tôi lại không được duyệt vào nhóm?
 * Bạn không trả lời đầy đủ cả 3 câu hỏi hoặc mật khẩu không đúng.
 * **LƯU Ý:** Sau 3h, nếu không trả lời câu hỏi sẽ bị hủy yêu cầu tham gia nhóm.
-## 2. Mật khẩu vào nhóm: 
+## 3. Mật khẩu vào nhóm: 
 **hqfdcv**
 
 # C. Các trang thuộc **FDCV**
