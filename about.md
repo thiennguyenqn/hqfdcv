@@ -20,14 +20,14 @@ Tùy admin :3
 **hqfdcv**
 
 # C. Các trang thuộc **FDCV**
-* Fanpage: https://www.facebook.com/fanDetectiveConan
-* Blog: https://fanconanvn.blogspot.com
+* Fanpage: [Detective Conan ( Vietnamese )](https://www.facebook.com/fanDetectiveConan)
+* Blog: [https://fanconanvn.blogspot.com](https://fanconanvn.blogspot.com)
 * Instagram: [@fdcv.subteam](https://www.instagram.com/)
-* FDCV Shop: https://fdcvshop.top - Page: https://www.facebook.com/fdcvshop
+* FDCV Shop: [https://fdcvshop.top](https://fdcvshop.top) - Page: [Detective Conan Vietnamese](https://www.facebook.com/fdcvshop)
 * [Hội quán FDCV](https://www.facebook.com/groups/fanconandc)
-* Forums: https://fdcv.xyz
-* Anime: https://fdcv.xyz/anime
-* Manga: https://manga.fdcv.xyz
-* Tool khóa link: https://lock.fdcv.xyz
+* Forums: [https://fdcv.xyz](https://fdcv.xyz)
+* Anime: [https://fdcv.xyz/anime](https://fdcv.xyz/anime)
+* Manga: [https://manga.fdcv.xyz](https://manga.fdcv.xyz)
+* Tool khóa link: [https://lock.fdcv.xyz](https://lock.fdcv.xyz)
 ##
 ### Chúc bạn một ngày vui vẻ <3
