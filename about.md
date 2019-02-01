@@ -2,7 +2,7 @@
 ## 1. Hội quán FDCV?
 * FDCV = Fan Detective Conan Vietnamese
 * Thời gian thành lập: 01/09/2014
-* Tham gia hội quán có thể chia sẻ về những gì liên quan tới [Conan](#), tới văn hóa nước Nhật hoặc Việt Nam.
+* Tham gia hội quán có thể chia sẻ về những gì liên quan tới [Conan](#), tới văn hóa nước Nhật và Việt Nam.
 
 ## 2. Tiếp đến là nội quy :> :
 * Chia sẻ những điều xoay quanh tới [Conan](#) và văn hóa Nhật, Việt.
