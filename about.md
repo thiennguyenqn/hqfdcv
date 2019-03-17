@@ -28,6 +28,6 @@ Tùy admin :3
 * Forums: [https://fdcv.xyz](https://fdcv.xyz)
 * Anime: [https://fdcv.xyz/anime](https://fdcv.xyz/anime)
 * Manga: [https://manga.fdcv.xyz](https://manga.fdcv.xyz)
-* Tool khóa link: [https://lock.fdcv.xyz](https://lock.fdcv.xyz)
+* Tool khóa link: [https://locks.fdcv.xyz](https://locks.fdcv.xyz)
 
 ### Chúc bạn một ngày vui vẻ <3
