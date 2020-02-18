@@ -19,12 +19,12 @@ Tùy admin :3
 ## 3. Mật khẩu vào nhóm: 
 **hqfdcv**
 
-# C. Các trang thuộc **FDCV**
-* Fanpage: [Fan Detective Conan Vietnamese - FDCV](https://www.facebook.com/conanfdcv)
+# C. Các trang thuộc **FDCV** (cập nhật ngày 18/02/2020)
+* Fanpage: [Fan Detective Conan Vietnamese - FDCV](https://www.facebook.com/conanfdcv/)
 * Blog: [https://fanconanvn.blogspot.com](https://fanconanvn.blogspot.com)
-* Instagram: [@fdcv.subteam](https://www.instagram.com/)
-* FDCV Shop: [https://fdcvshop.top](https://fdcvshop.top) - Page: [Detective Conan Vietnamese](https://www.facebook.com/fdcvshop)
+* Instagram: [@fdcv.subteam](https://www.instagram.com/fdcv.subteam)
+* Tin tức: [https://fdcv.xyz](https://fdcv.xyz)
+* FDCV Shop: [https://shop.fdcv.xyz](https://shop.fdcv.xyz) - Page: [FDCV Shop - Thám tử Conan](https://www.facebook.com/shopconanfdcv)
 * [Hội quán FDCV](https://www.facebook.com/groups/fanconandc)
-* Forums: [https://fdcv.xyz](https://fdcv.xyz)
 
 ### Chúc bạn một ngày vui vẻ <3
